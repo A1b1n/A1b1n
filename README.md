@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @A1b1n
-- 👀 I’m interested in those fandoms: Half Life,Garrys mod,Plants Vs Zombies,Sonic,Fnf,Sonic
+- 👀 I’m interested in those fandoms: Half Life,Garrys mod,Plants Vs Zombies,Sonic,Fnf
 - 🌱 I’m currently learning C# and Python
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: :o
